@@ -1,5 +1,4 @@
-# SL4SH3RM0V3-FAN
-![HAII](https://github.com/SL4SH3RM0VI3/R3NJ1/blob/b496a24c7ea967a4a2a69e4b63774a348303d891/y2k_1783478665479.jpg)
+<img width="2500" height="2500" alt="Image" src="https://github.com/user-attachments/assets/4486c859-02a9-4c46-be38-d1f1f493d92a" />
 
 ★ **ABOUT ME:**
 + call me **Renji** or **Timmy**
