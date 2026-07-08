@@ -6,7 +6,7 @@
 + she/her | bisexual
 + VIET/ENG (i'm bad at English)
 + 04/04
-+ mutilfandom | mutilshipper
++ slasher movie addicted | mutilfandom
 + i love my moots^^
 + i like drawing, listening to music, playing games n yapping w my friends!!
 + artist/pianist
